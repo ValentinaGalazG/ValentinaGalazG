@@ -1,7 +1,7 @@
 ## Hey youuu 🍒🐇🎀🐚
 ⠀
     ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
-    ¡𝐖𝐄𝐋𝐂𝐎𝐌𝐄!
+    ¡𝐖𝐄𝐋𝐂𝐎𝐌𝐄!     ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
 
 - 🌊🧠I'm Marine Biologist from the Andrés Bello University. Currently, I'm studying the PhD program of Biological Sciences, mention in Ecology, in the Pontifical Catoholic University of Chile.
