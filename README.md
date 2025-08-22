@@ -6,7 +6,7 @@
 
 🌊🐚I'm Marine Biologist from the Andrés Bello University. Currently, I'm studying the PhD program of Biological Sciences, mention in Ecology, in the Pontifical Catoholic University of Chile.
 
-🔭🧠 I'm very interested in physical oceanography, climate change and Earth and planetary sciences 🌍✨.
+🔭🧠 I'm very interested in physical oceanography, climate change and Earth and Planetary sciences 🌍✨.
 
 🦦 The love of my life is my pretty little baby (🎶), ¡Buñuelo! (a ferret 𖹭).
 
