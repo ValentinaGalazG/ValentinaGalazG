@@ -4,7 +4,7 @@
     ¡𝐖𝐄𝐋𝐂𝐎𝐌𝐄!     ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
 
-🌊🐚I'm Marine Biologist from the Andrés Bello University. Currently, I'm studying the PhD program of Biological Sciences, mention in Ecology, in the Pontifical Catoholic University of Chile
+🌊🐚I'm Marine Biologist from Andrés Bello University. Currently, I'm studying the PhD program of Biological Sciences (Ecology), in the Pontifical Catoholic University of Chile
 
 ![Vale](https://github.com/user-attachments/assets/aa111e41-78e2-4e90-b287-c1e39541a5f2)
 
